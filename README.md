@@ -1,1 +1,1 @@
-[![VisperZW](https://readme-typing-svg.demolab.com/?lines=First+line+of+text;Second+line+of+text)](https://git.io/typing-svg)
+[![VisperZW](https://readme-typing-svg.demolab.com/?lines=Hi+my+name+is+VispeZW;I+love+PrincessRN)](https://git.io/typing-svg)
